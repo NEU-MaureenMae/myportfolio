@@ -15,3 +15,8 @@ November 22, 2022</p>
 Oracle Corporation<br>
 December 11, 2022
 </p>
+
+<p>[Business Analytics with Excel] (https://simpli-web.app.link/e/FPKwaCeUdDb)<br>
+SkillUp by Simplilearn<br>
+September 8, 2023<br>
+</p>
